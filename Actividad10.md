@@ -49,4 +49,11 @@ Jaqueline Ovalle
 
 <img width="1919" height="1079" alt="Captura de pantalla 2026-04-20 191741" src="https://github.com/user-attachments/assets/8e0171f3-031c-4ab0-877e-29a1bbfe0dbe" />
 
+Nataneli Ayeleth Cajbón Sabán 
+
+
+<img width="1901" height="708" alt="image" src="https://github.com/user-attachments/assets/f69f3bed-a6c9-4d8a-87e2-a6c567e336bc" />
+
+
+
 
